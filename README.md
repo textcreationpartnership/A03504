@@ -33,11 +33,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE
-STRANGE,
-VVONDERFVLL,
-and bloudy Battell betweene
-Frogs and Miſe:The occaſion of their falling o
+
 1. To the vertuous, courteous, and worſhipfull
 Gentleman, Maſter Robert Greenewood of
 Weſterton, health, with the happineſſe of both worlds.
